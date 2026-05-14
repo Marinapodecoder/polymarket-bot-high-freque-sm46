@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket new Strategy: decentralized-trading & slippage-control, the #1 strategy. Includes decentralized-trading and slippage-control for a
 
 
 
